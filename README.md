@@ -1,3 +1,4 @@
+https://www.canva.com/design/DAF9VJ4YR7E/7r4_z9rWN1joZ6x2Z4_VZg/watch?utm_content=DAF9VJ4YR7E&utm_campaign=designshare&utm_medium=link&utm_source=editor
 # 💫 About Me:
 🔭 I’m currently working on Data Science<br>👯 I’m looking to collaborate on Related to Data science Topic<br>🤝 I’m looking for help with Data Science projects<br>🌱 I’m pursuing Information Technology<br>💬 Ask me on subhnavadiya@gmail.com<br>
 
